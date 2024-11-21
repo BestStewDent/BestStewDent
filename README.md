@@ -13,3 +13,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
+
+
+### music
+
+- I'm into 80's music and music that sounds like it was mad ein the 80's called Synthwave. 
+
