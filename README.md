@@ -17,5 +17,5 @@ Here are some ideas to get you started:
 
 ### music
 
-- I'm into 80's music and music that sounds like it was mad ein the 80's called Synthwave. 
+- I'm into 80's music and music that sounds like it was made in the 80's called Synthwave. 
 
